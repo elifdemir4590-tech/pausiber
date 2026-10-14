@@ -1,0 +1,2 @@
+# pausiber
+Pausiber eğitimine katıldı 
